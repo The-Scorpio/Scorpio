@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @cypherKID
+- 👋 Hi, I’m Bikram Ghosh
 - 👀 I’m interested in CYBER SPACE
 - 🌱 I’m currently learning NOTHING
 - 💞️ I’m looking to collaborate on ANONIMITY
